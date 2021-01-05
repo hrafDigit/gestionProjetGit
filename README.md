@@ -20,6 +20,7 @@ So I throw my cards on your table
 I wanna love you, I wanna love and treat, love and treat you right
 I wanna love you
 'Cause every day and every night
+
 [QUATRIEME COUPLET]
 I wanna love you and treat you right
 I wanna love you
@@ -28,14 +29,13 @@ We'll be together
 With a roof right over our heads
 We'll share the shelter
 Of my single bed
-<<<<<<< HEAD
 We'll share the same room, yeah
 For Jah provide the bread
 Is this love, love, love, love that I'm feelin'?
 Is this love, love, love, love that I'm feelin'?
 
 Ooh
-=======
+
 We'll share the same room
 For Jah provide the bread
 
