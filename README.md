@@ -28,14 +28,12 @@ We'll be together
 With a roof right over our heads
 We'll share the shelter
 Of my single bed
-<<<<<<< HEAD
 We'll share the same room, yeah
 For Jah provide the bread
 Is this love, love, love, love that I'm feelin'?
 Is this love, love, love, love that I'm feelin'?
 
 Ooh
-=======
 We'll share the same room
 For Jah provide the bread
 
@@ -43,4 +41,3 @@ Is this love, is this love, is this love, is this love that I'm feelin'?
 Is this love, is this love, is this love, is this love that I'm feelin'?
 
 Jah-jah
->>>>>>> 2df77adc2680884dd23184f38686551b349b6d18
