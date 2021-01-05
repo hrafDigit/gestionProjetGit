@@ -33,6 +33,26 @@ Is this love, love, love, love that I'm feelin'?
 
 Ooh
 
+I've got to know, got to know, got to know now
+I've got to know, got to know, got to know now
+
+[TROISIEME COUPLET]
+I-I-I, I'm willing and able
+So I throw my cards on your table
+I wanna love you, I wanna love and treat, love and treat you right
+I wanna love you
+'Cause every day and every night
+We 'gon be together
+We got a roof right over our heads
+We'll share the shelter
+Of my single bed
+We'll share the same room
+For Jah provide the bread
+Take it to the bridge!
+
+Love, love, love, love that I'm feelin'
+Love, love, love, love that I'm feelin'
+
 [QUATRIEME COUPLET]
 I wanna love you and treat you right
 I wanna love you
