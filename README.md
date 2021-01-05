@@ -1,4 +1,10 @@
+# Initiation à Git | POEC Dev-front-End | Softeam
+# Contributors : Dina / Vincent / Achraf
+#
 # gestionProjetGit
+# Apprendre à gérer les conflits de version dans Git
+# Ajouter tour à tour les couplets d'une chanson en travaillant sur un même fichier
+
 [PREMIER COUPLET]
 Wanna love you and treat you right
 I wanna love you
