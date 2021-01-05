@@ -30,3 +30,14 @@ Is this love, is this love, is this love, is this love that I'm feelin'?
 Is this love, is this love, is this love, is this love that I'm feelin'?
 
 Jah-jah
+
+[CINQUEIEME COUPLET]
+I, I'm willing and able
+So I throw my cards on your table
+I wanna love you, I wanna love and treat, love and treat you right
+I wanna love you
+Every day and every night
+We'll be together
+We got a roof right over our heads
+We'll share the shelter
+(Of my single bed)
